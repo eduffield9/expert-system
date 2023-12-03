@@ -1,3 +1,37 @@
+duck 
+ha 
+ca 
+  er duck o2i34n ionio234ni oni o2in oio 234
+   2
+   34
+    23 udck oin23n io4 nio234
+    4 
+
+ero i2 34 duck 23o4 iou234
+ 23
+ 4 k23i ni23n4io nio2 nioni o2 34
+
+  2 
+  34 er hatgeo 2n io34 noi 2i34oi2 nio3 no2o nio 23i on4
+  2h34
+  h2
+  3hh
+  234 hate oi23nio 4 nio2 3noi4n oi2 oin3234 
+
+   23
+
+     234  hat 
+      2hi34 nio234 ni ino234 ahte io io234 duck 23oi4 nio io234
+
+   23 4
+   2 
+   34
+    234 nio2 ino34 nio 
+
+     234 
+
+      234 in io nio234 ino noi234 noi ino234 
+
 e 234ij n2oui34oi 2iou34obiu 234
   2
   34
