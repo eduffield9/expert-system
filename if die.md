@@ -17,8 +17,12 @@ fi
 if boss 89234 89 8923 4879 782934 789 89234ion 2io in p2o34pi o iop234p iiop23 opi noi234
 hah
 
-hah
-a![51g67RWEgeL _AC_UL640_QL65_](https://github.com/eduffield9/expert-system/assets/152788646/58da7724-0536-4352-923c-bada34dd6413)
+hah io 234o io23 ino4oi 23 on4n oi23o in4 noi23 ino4 nio2 ino34 io io23 nio4 234
+OH2
+ j4 
+  234 
+  234 
+  234  ha io23 nio4 io234
 
 h
 ah
@@ -28,7 +32,7 @@ ha
 ha die io23 no4o in2 n3io 234 
 ha
 ha
-ha![51--mel6L6L _AC_UL640_QL65_](https://github.com/eduffield9/expert-system/assets/152788646/19d920fb-9ed4-4f3f-85c5-52e8b0948d39)
+ha=opp2 3op4 op2pi3 nip 2nip34 nip n2op34 op po234 po pon234 
 
 ha die io234 nio nio234 ino n2io34io23 ino4 nio nio234 
 h
