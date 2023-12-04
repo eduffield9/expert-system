@@ -26,7 +26,7 @@ OH2
 
 h
 ah
-aha![51g67RWEgeL _AC_UL640_QL65_](https://github.com/eduffield9/expert-system/assets/152788646/a3924aa5-3e42-473f-99a6-d97e163c9901)
+aha
 
 ha
 ha die io23 no4o in2 n3io 234 
@@ -37,7 +37,7 @@ ha=opp2 3op4 op2pi3 nip 2nip34 nip n2op34 op po234 po pon234
 ha die io234 nio nio234 ino n2io34io23 ino4 nio nio234 
 h
 ha
-ha![Unknown-1](https://github.com/eduffield9/expert-system/assets/152788646/eb3d4b4c-4585-45b2-afaa-0d56bf2102fd)
+h
 
 h
 hah
