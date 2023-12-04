@@ -87,7 +87,7 @@ h fat oi234 oi23 io4 ion23 nio4 io23 io4ioi 234
 234 
 23
  4
-23![51g67RWEgeL _AC_UL640_QL65_](https://github.com/eduffield9/expert-system/assets/152788646/e35a9882-b640-4150-b1eb-52ee7cd7ce6b)
+23
 
  4 
 234
